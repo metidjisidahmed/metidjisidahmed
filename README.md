@@ -8,7 +8,7 @@
 - 🌱 I’m currently learning Data Science with Python
 
 - 💬 Ask me about Any kind of collaborations !
-- 📫 How to reach me: using [my email](mailto:is_metidji@esi.dz)
+- 📫 How to reach me: using my email [is_metidji@esi.dz](mailto:is_metidji@esi.dz)
 - 	ℹ️ : Check my portfolio to know more about me ! <https://metidji-sid-ahmed.netlify.app>
 
 - ⚡ Fun fact: I adore Cheese 🧀 !
