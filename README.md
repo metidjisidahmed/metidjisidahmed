@@ -7,7 +7,7 @@
 
 
 - 💬 Ask me about Any kind of collaborations!
-- 📫 How to reach me: using my email [is_metidji@esi.dz](mailto:is_metidji@esi.dz)
+- 📫 Reach me using my email [is_metidji@esi.dz](mailto:is_metidji@esi.dz)
 - ⚡ Fun fact: I adore Cheese 🧀 !
 
 
